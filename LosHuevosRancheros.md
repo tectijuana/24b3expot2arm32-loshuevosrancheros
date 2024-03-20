@@ -24,6 +24,7 @@
 
 ![image](https://github.com/tectijuana/24b3expot2arm32-loshuevosrancheros/assets/158230493/0f4a5c46-3e33-4106-a52f-610b08836fef)
 
-![image](https://github.com/tectijuana/24b3expot2arm32-loshuevosrancheros/assets/158230493/106b333b-51e9-4513-9b06-eb638a6a4466)
+![image](https://github.com/tectijuana/24b3expot2arm32-loshuevosrancheros/assets/158230493/2e143bb8-b579-40e1-93e2-b94cbf85fb98)
+
 
 
